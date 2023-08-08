@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @silasmattex
+- 👀 I’m interested in programming
+- 🌱 I’m currently learning computer science
+- 💞️ I’m looking to collaborate on new projects
+- 📫 I'm reachable throught my email account evrardmatala4@gmail.com
